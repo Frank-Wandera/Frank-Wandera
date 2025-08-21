@@ -7,4 +7,4 @@
 - 💬 Ask me about French and books.
 - 📫 How to reach me: Frankongeso19@gmail.com
 - 😄 Pronouns: He/Him
--https://pin.it/6tBtPiFeM
+  
